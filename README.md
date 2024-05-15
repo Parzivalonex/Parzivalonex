@@ -31,5 +31,6 @@ Contribuir para o desenvolvimento de soluções que impactem positivamente a soc
 Entre em Contato:
 
 emanuelgomes653@gmail.com
+
 www.linkedin.com/in/emmanuelferreiragomes
 Aguardo seu contato! 😄
